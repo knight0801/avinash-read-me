@@ -69,7 +69,7 @@
 - 📱 +91 6203624667  
 - 🌍 Hazaribagh, Jharkhand  
 - 🧑‍💻 [GitHub: Knight0801](https://github.com/Knight0801)  
-- 🔗 [LinkedIn (optional – send me link if you want it added)]
+- 🔗 [LinkedIn (https://www.linkedin.com/in/avinash-gourav-35b459262?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)]
 
 ---
 
